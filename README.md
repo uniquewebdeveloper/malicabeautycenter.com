@@ -1,1 +1,1 @@
-www. malicabeautycenter.com
+ malicabeautycenter.com
